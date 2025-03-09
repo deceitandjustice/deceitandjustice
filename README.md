@@ -1,1 +1,8 @@
-hi this is mitty... 
+furina de fontaine : " I want to tell someone ... anyone ... about this ... "
+shadow milk cookie : " What was it ? What was it that made your souljam ring like a thousand bells ? "
+freminet snezhevich: " It's easy to fix a machine when you know how it's built and how it works. But people ... they're much more different. "
+abyss monarch cookie: " Have you ever witnessed pure darkness ... "
+arlecchino: " I can hear the children singing ... "
+golden cheese cookie: " You CANNOT crush MY treasures. As you CANNOT crush ME. "
+sea fairy cookie: " Can you not ... hear me ? "
+pure vanilla cookie: " Let me be your ... friend. "
