@@ -1,19 +1,21 @@
-☔• ***im still a minor so I might say weird things cuz i dont know any better ,,***
+☔• ***im a minor so I might say weird + absurd things cuz i lwk dont think twice ,,***
 
 
-☔• ***i'll try my best to be as friendly as possibbblleeee :3***
+☔• ***heh,, i am very friendly vro trust me***
 
 
+☔• ***pls tell me ur boundaries ! sometimes i might go too far n hurt u,, which results in grudges + hatred n all :<***
 
-☔• ***pls tell me ur boundaries ! sometimes i might go too far n hurt u :<***
+
+☔• ***if youre in the same fandoms as me and happen to be my friend,,, oh boy be ready for t	he BIGGEST yapfest you'll ever face.***
 
 
-☔• ***if we get close amd become best friends, im VERRRRYYYYY affectionate + loving + caring + funny (trust me plsss) ! but i cope w humor+ i kinda use jokes to comfort people so um... if u dont like that typa comfort, tell me!***
-
-☔• ***im changing woooooowiiiie (also u actlly wont see me in pt cuz i find it	 boring	asf now,, but if ur seeing this profile this means you came from pt ,, which also means you've basically discovered a diamond! 0.000.01% chance of being in pt btw)***
+☔• ***im changing woooooowiiiie.. i get uncomfy w chats abt health (specifically eye), my past + basically any drama especially in t	he fandoms in.. yk every single ppl in fandoms are not the same... maybe the majority (THIS IS TARGETED AT THE GENSHIN FANDOM!!!/sarc)***
 
 
 💟• ***maybe we were destined to be goofs together, who knows ? ^u^***
 
 
 *(extra note, if anyone is reading this, ur kewl + extra kewl!!! see you tomorrow!)*
+
+wow trianne ref (my poor baby OML I AHTE YOU EVIL PHAINON AKA FLAME REAVER!!!!!!!!!)
