@@ -1,16 +1,16 @@
-☔• ***im a minor so I might say weird + absurd things cuz i lwk dont think twice ,,***
+☔• ***im a minor so I might say weird + absurd things cuz i lwk dont think twice idfk why ,,***
 
 
-☔• ***heh,, i am very friendly vro trust me***
+☔• ***heh,, i am very friendly vro trust me... PLEASE INT ME I BEG OF YOU IM ACTUALLY GERY FUNNY PLEASS***
 
 
 ☔• ***pls tell me ur boundaries ! sometimes i might go too far n hurt u,, which results in grudges + hatred n all :<***
 
 
-☔• ***if youre in the same fandoms as me and happen to be my friend,,, oh boy be ready for t	he BIGGEST yapfest you'll ever face.***
+☔• ***i lwk fw anyone who likes forsaken, dw , hsr , crk/crob,,, if you like these games too PLEASE dont be afraid ro say hi!! i would actually love to chat w u !!!!!!***
 
 
-☔• ***im changing woooooowiiiie.. i get uncomfy w chats abt health (specifically eye), my past + basically any drama especially in t	he fandoms in.. yk every single ppl in fandoms are not the same... maybe the majority (THIS IS TARGETED AT THE GENSHIN FANDOM!!!/sarc)***
+☔• ***i suck at github rentry anything similar so these look cringe af 🥀 uh also er. i love two time theyre so fkn stupid and i love casto🍚***
 
 
 💟• ***maybe we were destined to be goofs together, who knows ? ^u^***
