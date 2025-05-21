@@ -1,6 +1,3 @@
-☔• ***im a minor so I might say weird + absurd things cuz i lwk dont think twice idfk why ,,***
-
-
 ☔• ***heh,, i am very friendly vro trust me... PLEASE INT ME I BEG OF YOU IM ACTUALLY GERY FUNNY PLEASS***
 
 
@@ -10,7 +7,7 @@
 ☔• ***i lwk fw anyone who likes forsaken, dw , hsr , crk/crob,,, if you like these games too PLEASE dont be afraid ro say hi!! i would actually love to chat w u !!!!!!***
 
 
-☔• ***i suck at github rentry anything similar so these look cringe af 🥀 uh also er. i love two time theyre so fkn stupid and i love casto🍚***
+☔• ***i suck at github rentry anything similar so these look cringe af 🥀 uh also er. i love two time and casto🍚 wow wow woww***
 
 
 💟• ***maybe we were destined to be goofs together, who knows ? ^u^***
@@ -18,4 +15,6 @@
 
 *(extra note, if anyone is reading this, ur kewl + extra kewl!!! see you tomorrow!)*
 
-wow trianne ref (my poor baby OML I AHTE YOU EVIL PHAINON AKA FLAME REAVER!!!!!!!!!)
+
+
+• ,,wow trianne ref (my poor baby)
