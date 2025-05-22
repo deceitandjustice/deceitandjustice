@@ -1,4 +1,4 @@
-☔• ***heh,, i am very friendly vro trust me... PLEASE INT ME I BEG OF YOU IM ACTUALLY GERY FUNNY PLEASS***
+☔• ***heh,, i am very friendly vro trust me... PLEASE INT W ME I BEG OF YOU IM ACTUALLY GERY FUNNY PLEASS***
 
 
 ☔• ***pls tell me ur boundaries ! sometimes i might go too far n hurt u,, which results in grudges + hatred n all :<***
