@@ -7,14 +7,7 @@
 ☔• ***i lwk fw anyone who likes forsaken, dw , hsr , crk/crob,,, if you like these games too PLEASE dont be afraid ro say hi!! i would actually love to chat w u !!!!!!***
 
 
-☔• ***i suck at github rentry anything similar so these look cringe af 🥀 uh also er. i love two time and casto🍚 wow wow woww***
+☔• ***i make a lotta spelling mistakes so dont try to correct them,, its pointless but you can joke about it!!!!!! also cough im lazy to make a rentry so yeah this is all i got 💔***
 
 
 💟• ***maybe we were destined to be goofs together, who knows ? ^u^***
-
-
-*(extra note, if anyone is reading this, ur kewl + extra kewl!!! see you tomorrow!)*
-
-
-
-• ,,wow trianne ref (my poor baby)
