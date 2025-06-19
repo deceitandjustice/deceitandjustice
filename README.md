@@ -1,13 +1,13 @@
-☔• ***heh,, i am very friendly vro trust me... PLEASE INT W ME I BEG OF YOU IM ACTUALLY GERY FUNNY PLEASS***
+🫧• ***heh,, i am very friendly + talkative vro trust me... PLSPSLSLS INT W ME I SWEAR IM FUNNY PLEAS***
 
 
-☔• ***pls tell me ur boundaries ! sometimes i might go too far n hurt u,, which results in grudges + hatred n all :<***
+🫧• ***please tell me your boundaries !! if you do , ill try my best not to overstep em ! pinky promise ^u^***
 
 
-☔• ***i lwk fw anyone who likes forsaken, dw , hsr , crk/crob,,, if you like these games too PLEASE dont be afraid ro say hi!! i would actually love to chat w u !!!!!!***
+🫧• ***i lwk fw anyone who likes forsaken, dw , hsr , crk/crob,,, soo yeah if you like these games too come n chat with me ! i dont bite :33***
 
 
-☔• ***i make a lotta spelling mistakes so dont try to correct them,, its pointless but you can joke about it!!!!!! also cough im lazy to make a rentry so yeah this is all i got 💔***
+🫧• ***i make a lotta spelling mistakes , im quite hyperactive , too chatty... so iwc ? idk.. also err im lazy to make a rentry so yeah this is all i got 💔***
 
 
-💟• ***maybe we were destined to be goofs together, who knows ? ^u^***
+🌀• ***mayhaps fate brought you here ... heh >:3***
